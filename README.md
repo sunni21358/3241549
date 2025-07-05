@@ -44,4 +44,4 @@
 在我们这里，您不仅可以观看到最新的高清影片，还能找到很多经典的日本AV资源。我们为您提供高质量的观影体验，无广告、无干扰，让您专注于每一部影片的精彩内容。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sunni21358/3241549 ）</span>
